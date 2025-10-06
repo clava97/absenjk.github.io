@@ -206,7 +206,7 @@ Proprietary - Internal Use Only
 ## 👥 Support
 
 Untuk bantuan atau pertanyaan:
-- Email: support@absensipro.com
+- Email: clavacox77@gmail.com
 - Docs: [Link to documentation]
 
 ---
